@@ -1,1 +1,1 @@
-# Querinlox
+# Querinlox ölmedim yaşıom
